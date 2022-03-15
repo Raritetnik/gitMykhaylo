@@ -1,4 +1,4 @@
 Mykhaylo Kuzmin
 Programmation, jeux video
-Beaucoup de perspectives
+Beaucoup de perspectives.
 mkodarenko@gmail.com
